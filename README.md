@@ -1,0 +1,2 @@
+# premium-rock-climbing-001-rock-climbing-performance-ro
+Stop guessing why you're stuck at the same grade. Every climber knows the frustration of plateauing—your fingers feel strong, but progress stalls. The problem isn't effort; it's data. You're missing a system to track what actually matters: your performance, not just your sends.  This Notion system transforms scattered notes, Instagram route beta, a
